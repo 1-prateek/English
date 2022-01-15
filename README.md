@@ -45,6 +45,8 @@ https://www.youtube.com/watch?v=cgv9YEFQrMU
 
 # channels - 
 
+https://www.youtube.com/c/FourMinuteFilms/featured - channel have only few videos
+
 https://www.youtube.com/c/AsianBoss/videos
 
 https://www.youtube.com/user/InsideIIM
@@ -80,6 +82,21 @@ https://www.youtube.com/c/MyProfessorNotes/featured
 https://www.youtube.com/c/Unerasepoetry
 
 https://www.youtube.com/channel/UCzGbe7WmkQPW3gcbhN0G2gw
+
+https://www.youtube.com/channel/UCVGqn-ARtA4ZhKIBnvP5Lfw
+
+https://www.youtube.com/channel/UCAQg09FkoobmLquNNoO4ulg
+
+https://www.youtube.com/c/EnglishSpeakingSuccess/featured
+
+https://www.youtube.com/channel/UCwk6ifONlkvqnoMF2uyA05g
+
+https://www.youtube.com/channel/UCvapa0SZ7_vwks-OtvFBqDw
+
+https://www.youtube.com/channel/UCYzEMRKqrh01-tauv7MYyVQ/featured
+
+
+
 
 
 
